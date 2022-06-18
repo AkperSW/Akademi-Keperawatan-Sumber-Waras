@@ -1,0 +1,2 @@
+# Akademi-Keperawatan-Sumber-Waras
+Perkembangan dan pertumbuhan masyarakat dewasa ini serta kecenderungan dimasa yang akan datang membutuhkan pelayanan kesehatan yang bermutu dan kompleks. Untuk itu perlu disiapkan tenaga-tenaga keperawatan yang memiliki wawasan nasional, sikap etis serta kemampuan profesional sesuai dengan kebutuhan masyarakat. Sehubungan untuk memenuhi hal tersebut, maka mulai tahun 1998, Sekolah Perawat Kesehatan Sumber Waras dengan SK Menkes RI No. HK. 00.06.1.3.02134, tanggal 18 Mei 1998 di Konversi menjadi Akademi Keperawatan Sumber Waras 
